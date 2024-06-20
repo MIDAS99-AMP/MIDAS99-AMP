@@ -1,4 +1,4 @@
-# 👋 Hi, I’m @MIDAS99-AMP
+# 👋 Hi, I’m @Midas99
 
 - 👀 I’m interested in situs slot dengan asuransi 100%
 - 🌱 I’m currently learning tentang pengembangan platform permainan online
